@@ -1,2 +1,4 @@
 # hola-caracola
-creando te
+creando-te
+
+i love music, coffee. read, breathe, to look at the sky, to thank, to learn
